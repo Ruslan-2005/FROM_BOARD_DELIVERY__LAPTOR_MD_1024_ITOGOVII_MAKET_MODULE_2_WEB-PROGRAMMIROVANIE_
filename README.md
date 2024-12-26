@@ -1,1 +1,1 @@
-"From Board Delivery" (Laptop (MD 1024).
+Официальная страница сайта "From Board Delivery" (Laptop (MD 1024).
