@@ -1,1 +1,1 @@
-"From Board Delivery".
+"From Board Delivery" (Laptop (MD 1024).
